@@ -85,6 +85,8 @@ If you are interested in making one donation that will be split evenly among ove
 
 * <a href="https://www.nonewjails.nyc/">No New Jails NYC</a> aims to keep the city from constructing new jails, and to instead divert funds that currently go toward the police and incarceration toward housing, ending homelessness, mental health, and other community support systems.
 
+* <a href="https://www.communityjusticeexchange.org/">Community Justice Exchange</a> is a national hub for developing, sharing, and experimenting with tactical interventions, strategic organizing practices, and innovative organizing tools to end mass incarceration. The organization provides support to community-based organizations that are building a new vision of community justice through bottom-up interventions in the criminal legal and immigration detention systems.
+
 ### Politics & Voting
 
 * <a href="https://fairfight.com/">Fair Fight</a> promotes fair elections in Georgia and around the country, encourages voter participation in elections, and educates voters about elections and their voting rights. Fair Fight brings awareness to the public on election reform, advocates for election reform at all levels, and engages in other voter education programs and communications.
@@ -121,6 +123,8 @@ If you are interested in making one donation that will be split evenly among ove
 
 * <a href="https://www.dancetheatreofharlem.org/">The Dance Theatre of Harlem</a> is a New York City ballet school that provides arts education and ballet training aiming to “present a ballet Company of African American and other racially diverse artists who perform the most demanding repertory at the highest level of quality.” In addition to performances and training, the Dance Theatre of Harlem also maintains community outreach programs to bring the arts to all.
 
+* <a href="http://www.blacktablearts.com/">Black Table Arts</a> gathers Black communities through the arts, towards better black futures.
+
 ## Making a difference politically
 
 Register to vote
@@ -138,4 +142,9 @@ Local voting dates
 ## Making a difference through your representatives
 
 Test
+
+## Supporting Black Businesses
+
+If you would like to help support black businesses in Minnesota most-impacted, please donate to the <a href="https://abepmpls.org/pimento-relief-fund">Pimento Relief Fund</a>.
+
 
