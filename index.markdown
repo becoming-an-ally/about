@@ -15,6 +15,8 @@ title: "Resources to become an ally for the Black community"
 
 ### Support the Black community by proactively seeking out their businesses.
 
+### Support the Black community by <a href="https://wa-hans.github.io/vote/">educating oneself to their challenges and perspective</a>.
+
 
 
 ## Supporting Black Businesses
