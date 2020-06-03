@@ -19,7 +19,7 @@ Support the Black community by <a href="https://vocalmajority.github.io/educate/
 
 ___
 
-> “One of the challenges is, white people want to call people of color and say, ‘What am I supposed to do,’ which puts a tremendous burden on people of color,” Carla Wallace, a co-founder of Showing Up for Racial Justice, tells the Cut. “Our work is to move other white people.”
+> “One of the challenges is, white people want to call people of color and say, ‘What am I supposed to do,’ which puts a tremendous burden on people of color,” __Carla Wallace, a co-founder of Showing Up for Racial Justice__, tells the Cut. “Our work is to move other white people.”
 
 > Anti-racism demands that we identify the hierarchies and power structures that have always awarded privilege to white people, and look at them honestly. Showing Up for Racial Justice developed a tool kit with Color of Change, and also has tips for calling people into conversations in a manner that doesn’t prompt defensiveness. You hear someone griping about the riots and violence at certain protests? Talk to them about the despair, the pain, and the anger at the center, and where that comes from. You hear someone wonder what privilege a broke white person has? Talk to them about what it’s like to not have to worry about your personal safety while moving through your day: jogging down a residential street, or walking home from a convenience store. But, Wallace recommends, exercise empathy over the urge to reproach.
 
