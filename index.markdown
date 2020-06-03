@@ -18,9 +18,3 @@ title: "Resources to become an ally for the Black community"
 ### Support the Black community by <a href="https://wa-hans.github.io/vote/">educating oneself to their challenges and perspective</a>.
 
 
-
-## Supporting Black Businesses
-
-If you would like to help support black businesses in Minnesota most-impacted, please donate to the <a href="https://abepmpls.org/pimento-relief-fund">Pimento Relief Fund</a>.
-
-
