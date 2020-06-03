@@ -21,7 +21,7 @@ Trayvon Martin
 
 Please see this comprehensive list of Bail Funds. Includes national and local organizations.
 
-If you are interested in making one donation that will be split evenly among over 50  bail funds, mutual aid funds, and activist organizations listed on the following link, or allocate specific amounts to individual groups, please visit here: https://secure.actblue.com/donate/bail_funds_george_floyd.
+If you are interested in making one donation that will be split evenly among over 50  bail funds, mutual aid funds, and activist organizations listed on the following link, or allocate specific amounts to individual groups, please visit <a href="https://secure.actblue.com/donate/bail_funds_george_floyd">ActBlue's resource here</a>.
 
 ### Education
 
