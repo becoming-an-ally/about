@@ -1,6 +1,6 @@
 ---
 layout: default
-title: "Donation Organizations"
+title: "Non-Profit Organizations"
 ---
 
 # Resources to support systemic change
