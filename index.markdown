@@ -7,9 +7,13 @@ title: "Resources to become an ally for the Black community"
 
 *This list is intended to be comprehensive but understand that there could be many others not included. If there is something missing, please make a pull request on the [github repository](https://github.com/wa-hans/becoming-an-ally.github.io).*
 
-## Support the Black community <a href="https://wa-hans.github.io/donate/">financially</a>.
+### Support the Black community <a href="https://wa-hans.github.io/donate/">financially</a>.
 
-## Support the Black community politically
+### Support the Black community politically.
+
+### Support the Black community by engaging with your representatives.
+
+### Support the Black community by proactively seeking out their businesses.
 
 Register to vote
 
