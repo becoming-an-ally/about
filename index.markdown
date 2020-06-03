@@ -9,27 +9,13 @@ title: "Resources to become an ally for the Black community"
 
 ### Support the Black community <a href="https://wa-hans.github.io/donate/">financially</a>.
 
-### Support the Black community politically.
+### Support the Black community <a href="https://wa-hans.github.io/vote/">politically</a>.
 
 ### Support the Black community by engaging with your representatives.
 
 ### Support the Black community by proactively seeking out their businesses.
 
-Register to vote
 
-Federal voting dates
-1
-2
-3
-
-Local voting dates
-1
-2
-3
-
-## Making a difference through your representatives
-
-Test
 
 ## Supporting Black Businesses
 
