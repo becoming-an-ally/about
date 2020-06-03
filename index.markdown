@@ -26,7 +26,9 @@ If you are interested in making one donation that will be split evenly among ove
 ### Education
 
 Black Girls Code (BGC) is a not-for-profit organization that focuses on providing technology education for African-American girls. Kimberly Bryant, an electrical engineer who had worked in biotech for over 20 years, founded Black Girls Code in 2011 to rectify the underrepresentation of African-American girls and women in the technology industry. The organization offers programs in computer programming, coding, as well as website, robot, and mobile application-building.
-Code2040 is working to activate, connect, and mobilize the largest racial equity community in tech to dismantle the structural barriers that prevent the full participation and leadership of Black and Latinx people in the innovation economy.
+
+* [Code2040] (https://code2040-2020.funraise.org/) is working to activate, connect, and mobilize the largest racial equity community in tech to dismantle the structural barriers that prevent the full participation and leadership of Black and Latinx people in the innovation economy.
+
 National Black Law Students Association (NBLSA) works across America “to increase the number of culturally responsible Black and minority attorneys who excel academically, succeed professionally and positively impact the community.” NBLSA seeks both to support black law students and attorneys with opportunities to develop skills and make career connections, and to influence the legal community at large to address the needs of the black community.
 
 ### Black Community, Rights, & Equity
