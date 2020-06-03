@@ -11,7 +11,7 @@ title: "Resources to become an ally for the Black community"
 
 ### Support the Black community <a href="https://wa-hans.github.io/vote/">politically</a>.
 
-### Support the Black community by <a href="https://wa-hans.github.io/engage/">engaging with your representatives.
+### Support the Black community by engaging with your representatives.
 
 ### Support the Black community by <a href="https://wa-hans.github.io/support/">proactively seeking out their businesses.
 
