@@ -7,11 +7,11 @@ title: "Donation Organizations"
 
 *This list is intended to be comprehensive but understand that there could be many others not included. If there is something missing, please make a pull request on the [github repository](https://github.com/wa-hans/becoming-an-ally.github.io).*
 
-# Making a difference with your pocketbook
+## Making a difference financially
 
 Test
 
-# Making a difference through your political power
+## Making a difference politically
 
 Register to vote
 
@@ -25,7 +25,7 @@ Local voting dates
 2
 3
 
-# Making a difference through your representatives
+## Making a difference through your representatives
 
 Test
 
