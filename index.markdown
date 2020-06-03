@@ -17,7 +17,7 @@ title: "Donation Organizations"
 
 * <a href="https://www.gofundme.com/f/i-run-with-maud">Justice for Ahmaud Arbery</a> who was chased and gunned down on February 23, 2020 by Travis McMichael, son of retired Brunswick investigator Greg McMichael, under the father’s and son’s pretenses of witnessing a burglary in Satilla Shores of Glynn County despite no evidence of the alleged burglary. Furthermore, McMichael’s account of the deadly encounter with Arbery was not released until nearly 6 weeks following the shooting. No one has the right to pursue, attack and kill an unarmed, non-threatening individual.
 
-* <a href="https://www.gofundme.com/f/9v4q2-justice-for-breonna-taylor">Justice for Breonna Taylor</a> was fatally shot by Louisville Metro Police Department (LMPD) officers who were serving a "no-knock" warrant. According to a wrongful death lawsuit filed against the police by the Taylor family's attorney, the officers entered the home without knocking or announcing that they were police officers, and allegedly opened fire "with a total disregard for the value of human life." No drugs were found in the apartment.
+* <a href="https://www.gofundme.com/f/9v4q2-justice-for-breonna-taylor">Justice for Breonna Taylor</a> who was fatally shot by Louisville Metro Police Department (LMPD) officers who were serving a "no-knock" warrant. According to a wrongful death lawsuit filed against the police by the Taylor family's attorney, the officers entered the home without knocking or announcing that they were police officers, and allegedly opened fire "with a total disregard for the value of human life." No drugs were found in the apartment.
 
 ### Bail Funds & Legal Support
 
