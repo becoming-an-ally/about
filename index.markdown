@@ -15,7 +15,7 @@ Support the Black community by <a href="https://vocalmajority.github.io/engage/"
 
 Support the Black community by <a href="https://vocalmajority.github.io/support/">proactively seeking out their businesses</a>.
   
-Support the Black community by <a href="https://vocalmajority.github.io/educate/">educating oneself to their challenges and perspective</a>.
+Support the Black community by <a href="https://vocalmajority.github.io/educate/">educating oneself on racial oppression</a>.
 
 ___
 
