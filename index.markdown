@@ -29,4 +29,4 @@ h/t to <a href="https://www.thecut.com/article/george-floyd-protests-how-to-help
 
 ___
 
-Sources that were used to find many of the organizations and links can be found below. We will continue to update the sources as new ones are added <a href="https://vocalmajority.github.io/sources/"><here</a>.
+Sources that were used to find many of the organizations and links can be found below. We will continue to update the sources as new ones are added <a href="https://vocalmajority.github.io/sources/">here</a>.
