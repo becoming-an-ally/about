@@ -19,7 +19,7 @@ Support the Black community by <a href="https://vocalmajority.github.io/educate/
 
 ___
 
-> “Anti-racism work is not self-improvement work for white people. It doesn’t end when white people feel better about what they’ve done. It ends when Black people are staying alive and they have their liberation.” — Rachel Cargle (<a href="https://twitter.com/RachelCargle">Twitter</a>; <a href="https://www.instagram.com/rachel.cargle/">Instagram</a>)
+> “__Anti-racism work is not self-improvement work for white people. It doesn’t end when white people feel better about what they’ve done. It ends when Black people are staying alive and they have their liberation__.” — __Rachel Cargle__ (<a href="https://twitter.com/RachelCargle">Twitter</a>; <a href="https://www.instagram.com/rachel.cargle/">Instagram</a>)
 
 ___
 
